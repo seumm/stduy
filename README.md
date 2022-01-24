@@ -1,1 +1,1 @@
-# stduy
+# study!!
